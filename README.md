@@ -1,3 +1,0 @@
-# sohilpandya.github.io
-
-Sohl
